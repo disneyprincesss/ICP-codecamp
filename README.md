@@ -1,1 +1,1 @@
-It's not me, it's you
+live, laugh, sleep
